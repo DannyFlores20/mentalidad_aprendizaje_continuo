@@ -45,3 +45,12 @@ Alistair afirma que para ser valiente y fomentar la cultura del aprendizaje cont
 
 ## 3) El fracaso está bien, siempre y cuando, al final, se convierta en aprendizaje. 
 Una vez establecida la nueva cultura del aprendizaje, los líderes deben asegurarse de que los gerentes sepan que está bien fallar, siempre y cuando tomen nota de lo aprendido a raíz de dicha situación. 
+
+## Nos Prepara.
+
+* Nosotros al estar constantemente en un aprendizaje continuo evitara que perdamos relevancia. Hay que asegurarnos de estar al día con las tendencias de nuestra profesión así podremos estar al corriente en este mundo que día a día va cambiando en varias formas.
+* El aprendizaje continuo nos ayuda a estar preparados para lo inesperado a las nuevas tecnologías o las nuevas herramientas que nos ayudaran a ganar tiempo y nos ayudan a resolver los problemas de una manera mejor y de forma más eficiente.
+* Cuando estás en un aprendizaje continuo, tu mente se abre a mejores posibilidades y tu actitud está siempre dispuesta a encontrar nuevas y mejores soluciones para los problemas que te enfrentes, ya sea laborales o de tu vida cotidiana.
+
+
+
